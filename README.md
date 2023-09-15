@@ -6,6 +6,4 @@
 
 ### I want to become a blockchain developer.
 
-# I got super interested in crypto
-
 [raiders](https://en.wikipedia.org/wiki/Las_Vegas_Raiders)
